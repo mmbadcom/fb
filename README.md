@@ -1,12 +1,14 @@
 # fb
-newinde
+https://fb.fbfb.win/
 
-https://fb.fbfb.win/forum.php
+https://fb.fbfb.webcam/
 
-https://fb.fbzip.com/
-
+https://fb.fbfb.download/
 
 https://fb1080.me
 
-
 https://zzna.com
+
+https://abmov.com/
+
+https://hougong.me
