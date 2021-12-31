@@ -1,14 +1,13 @@
-# fb
-https://fb.fbfb.win/
+www.bzhan.live
 
-https://fb.fbfb.webcam/
+fb.ifbfb.live
 
-https://fb.fbfb.download/
+www.bzhan.one
 
-https://fb1080.me
+https://fbfb.men
 
 https://zzna.com
 
-https://abmov.com/
+https://abmov.icu
 
 https://hougong.me
